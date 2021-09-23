@@ -1,5 +1,3 @@
-### Hi there 👋
-
 ### Portfolio Ver-Univ
 https://bit.ly/3zCETIO 
 
